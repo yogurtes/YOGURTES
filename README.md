@@ -12,4 +12,4 @@ MEU NOME E STEFANI APARECIDA
 
 
 
-![]()https://tenor.com/bUnRC.gif
+![](https://tenor.com/bUnRC.gif)
